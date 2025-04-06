@@ -3,9 +3,9 @@
 
 - 🔭 We are currently working on **Genetical Disease Prediction**
 
-- 👯 I’m looking to collaborate on **innovative and Life Saving Ideas**
+- 👯 We woking to collaborate on **innovative and Life Saving Ideas**
 
-- 🤝 I’m looking for help with **Members to the Community**
+- 🤝 We look for **Members to the Community**
 
 - 📫 How to reach us **genewise.official@gmail.com**
 
